@@ -1,1 +1,0 @@
-# IBM-cloud---Pixel-Perfection
